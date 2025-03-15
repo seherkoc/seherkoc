@@ -1,5 +1,5 @@
 ## Hi there 👋
 
-## 📫 How to reach me: Seherpckoc@outlook.com
+## 📫 How to reach me: Seherpkoc@outlook.com
 ## 😄 Pronouns: she/her
 
